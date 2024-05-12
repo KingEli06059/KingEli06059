@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @KingEli06059
+- 👀 I’m interested in Coding
+- 🌱 I’m currently learning Coding
+- 💞️ I’m looking to collaborate on Nothing
+- 📫 How to reach me email:elijahittoo0605@gmail.com
+- 😄 Pronouns: He, His
+- ⚡ Fun fact: Apps
